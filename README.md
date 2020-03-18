@@ -4,7 +4,7 @@
 
 1,first I'll show you how to make them, there really easy.
 
-
+2,get a piece of Square paper and fold the top to the bottom  of the paper
 
 
 
