@@ -6,9 +6,8 @@
 
 2,get a piece of Square paper and fold the top to the bottom  of the paper so it looks like this.
 
-![](./img_2591.Jpg)
 
-
+![](.430D3FF9-5A75-4545-AF2D-CBCFEBD1DF4B.jpeg
 
 
 
