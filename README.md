@@ -9,7 +9,7 @@
 
 1. then turn the paper 90°,  and do the same thing so the folds form a plus.
 
-
+1. then fold each corner into the mittle of the paper so it looks like this.
 
 
 
