@@ -8,7 +8,7 @@
 
 1. when turn the paper 90° and do the same thing
 
-![image](./image.jpg)
+![image](./1A21E61C-217D-43E1-A919-CA38965A216E.jpeg)
 
 
 
