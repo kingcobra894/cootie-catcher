@@ -8,6 +8,8 @@
 
 1. when turn the paper 90° and do the same thing
 
+![image](./image.jpg)
+
 
 
 
